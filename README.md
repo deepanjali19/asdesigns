@@ -1,2 +1,0 @@
-# asdesigns
-Amrit Singh Designs
